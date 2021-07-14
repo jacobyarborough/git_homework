@@ -8,3 +8,7 @@ Strategies for Turing:
 
 Shoutouts:
 1. I would like to shoutout all of my friends and family who have been nothing but supportive and excited for me when they found out I was starting Turing!
+
+Thoughts:
+1. Turing is great!
+2. The content is ver interesting
